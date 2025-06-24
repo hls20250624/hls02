@@ -13,7 +13,7 @@
 
 点击访问：<a href="https://hls-03.pages.dev/">黑料社区网站</a>
 
-点击访问：<a href="https://hls-05.pages.dev/">最新吃瓜视频网站黑料视频在线看</a>
+点击访问：<a href="https://hls-05.pages.dev/">最新吃瓜视频网站</a>
 
 点击访问：<a href="https://hls-07.pages.dev/">新黑料社网页版</a>
 
